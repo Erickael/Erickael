@@ -2,7 +2,6 @@ Helloooooo👋
 
 I'm Erickael but you can call me Eric, Ricka, Kael or Rickael 😆
 - 🔭 I’m currently studying at IS INFO (preparing my license)
-- 🌱 I’m currently learning all things abot development and specifically how to learn it
 - 👯 I’m looking to collaborate on many project such as my church management (soon) and many more
 - 📫 How to reach me: rheritiana06@gmail.com
 - ⚡ Fun fact: I don't know how to center a div :')
