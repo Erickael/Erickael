@@ -8,3 +8,5 @@ I'm Erickael but you can call me Eric, Ricka, Kael or Rickael 😆
 
 I look forward working with you all :)
 
+update: Got my license, rn I'm studying at MIT WPU xD
+
